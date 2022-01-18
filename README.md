@@ -1,0 +1,1 @@
+susah senang,senang susah dijalani
